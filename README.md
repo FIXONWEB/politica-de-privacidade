@@ -41,5 +41,5 @@ Nossos serviços não tratam de menores de 13 anos. Não coletamos intencionalme
 Alterações a esta Política de Privacidade
 Podemos atualizar nossa Política de Privacidade periodicamente. Portanto, recomendamos que você reveja esta página periodicamente para quaisquer alterações. Notificaremos você sobre quaisquer alterações, publicando a nova Política de Privacidade nesta página. Essas alterações entram em vigor imediatamente após serem publicadas nesta página.
 
-Contate-Nos
+Contate-nos
 Se você tiver alguma dúvida ou sugestão sobre nossa Política de Privacidade, não hesite em nos contactar.
